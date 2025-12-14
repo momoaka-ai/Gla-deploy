@@ -1,4 +1,3 @@
-### Galaxy部署视频：https://youtube.com/@eooce
 
 ---
 
